@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 Hello There! I'm Venexs and I'm....:
 🛠️-Currently Working on 'The System'<br>🤘🏼  -Solo Developer<br>🃏 -Jack of all Trades<br>🧪-Trying to learn C<br>🧠-ADHD hehe<br>
 
 
